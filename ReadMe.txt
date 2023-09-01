@@ -1,1 +1,1 @@
-se beintôt le weekend
+Hello. C'est beintôt le weekend
